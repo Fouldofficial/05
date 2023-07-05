@@ -1,2 +1,0 @@
-# HilmiYahya.github.io
-MyBio
